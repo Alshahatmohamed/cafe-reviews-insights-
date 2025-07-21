@@ -70,7 +70,7 @@ This analysis can help café managers:
 
 Mohamed Alshahat
  Data Analyst | Open to remote roles
-LinkedIn Profile: linkedin.com/in/mohamed-alshahat-8754992a4
+LinkedIn Profile: https://www.linkedin.com/in/mohamed-alshahat-8754992a4?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BKEQqqYTUSVy58G61HlNwWA%3D%3D
 ⸻
 
 ⚖️ License
